@@ -7,7 +7,7 @@
 
 Description: This resaurant is locating in Yalong bay so easy to reach from hotel by walking.
 
-Stars: ★★★★
+Stars: 4 ★★★★
 
 ## Introduction of recipes (Just show some special foods. General seafoods you can decide when you're in there)
 * [White cut chicken(click to see wiki)](https://en.wikipedia.org/wiki/White_cut_chicken)
@@ -22,4 +22,20 @@ Stars: ★★★★
 Brief introduction: Some kind of snack with beans as ingredient, sweet.
 ![](https://dbjdsnch130xu.cloudfront.net/uploads/recipe/cover/152508/large_48034a717c9c723a.jpg)
 
-# 2. 福冠粤菜酒楼 （Fuguan Cantonese Restaurant）
+# 2. 金岷坊石锅椰子鸡 （Jin min fang Coconut Chicken Restaurant）
+[The address in Dianping](https://www.dianping.com/shop/27317513)
+Description: This restaurant is located in commercial center. They provide special hot pot coconut chicken food. When you visit the commercial center you can try this restaurant.
+
+Stars: 5 ★★★★★
+## Introduction of recipes (Just ask them for typical two person Hot pot coconut chicken food - 两人椰子鸡套餐, total price about  200RMB). 
+![](http://qcloud.dpfile.com/pc/7bwAliUy5oMMbk8rJRZ5hOndQWL8AJLPkQ7aV-_UGX4wYJ0BoCGqruGdnykGepTrTYGVDmosZWTLal1WbWRW3A.jpg)
+
+# 3. 探火花式铁板烧(青春颂店) Tanhuohua Teppanyaki (Qing chun song store)
+Address: 地址： 迎宾路昌达山水天域八区青春颂精品美食汇2-18商铺
+[The address in Dianping](https://www.dianping.com/shop/66426588)
+Description: This restaurant is located in commercial center. They provide the food type Teppanyaki. When you visit the commercial center you can try this restaurant.
+
+## Introduction of recipes
+* [Teppanyaki(click to see wiki)](https://en.wikipedia.org/wiki/Teppanyaki)
+
+
