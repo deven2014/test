@@ -52,9 +52,18 @@ Stars: 5 ★★★★★
 ![](http://qcloud.dpfile.com/pc/7bwAliUy5oMMbk8rJRZ5hOndQWL8AJLPkQ7aV-_UGX4wYJ0BoCGqruGdnykGepTrTYGVDmosZWTLal1WbWRW3A.jpg)
 
 # 3. 探火花式铁板烧(青春颂店) Tanhuohua Teppanyaki (Qing chun song store)
+
 Address: 地址： 迎宾路昌达山水天域八区青春颂精品美食汇2-18商铺
+
+![](http://qcloud.dpfile.com/pc/nrr2L1tuBxvDApol5eAb5PKpag9Q5zlLmATbtBdLjvXf6T3DZYkiYIz6Ij9_2SuSTYGVDmosZWTLal1WbWRW3A.jpg)
+![](http://qcloud.dpfile.com/pc/Cj7RFShbtRdny5q_X9dwfAzyEjwH43qAD-eD7i0Qed-YHbSvEEy9ZAO7_JSsQRUETYGVDmosZWTLal1WbWRW3A.jpg)
+![](http://qcloud.dpfile.com/pc/_E4BZ0sKfYuRTmIhJRi2Fk7rgP4PHYK5ySgkFFSuV_5kxIzZpYoTvazre3-CcoQYTYGVDmosZWTLal1WbWRW3A.jpg)
+![](http://qcloud.dpfile.com/pc/npk4jc-QuLbD5v-bH5ZVYHDWzHr0Q11YZL2qcxgCr2iZ3ExvpEBleuSip6Fydw3fTYGVDmosZWTLal1WbWRW3A.jpg)
+
 [The address in Dianping](https://www.dianping.com/shop/66426588)
 Description: This restaurant is located in commercial center. They provide the food type Teppanyaki. When you visit the commercial center you can try this restaurant.
+
+[The address in Google map](https://www.google.se/maps/place/Changda+Shanshui+Tianyu+Parking+Lot/@18.2669258,109.5018972,17.49z/data=!4m5!3m4!1s0x31454c6c47770465:0x9bdd7f3a6e10c856!8m2!3d18.268347!4d109.502037?hl=en)
 
 ## Introduction of recipes
 
