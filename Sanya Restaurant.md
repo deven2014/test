@@ -4,15 +4,23 @@ Key tips: How to find out the restaurant is more challenge. One way is take taxi
 
 Remind Google map may can not use in China. please take a photo or save a screenshot on phone about the place to make sure you can easy to find the restaurant.
 
-
 # 1. 福冠粤菜酒楼 （Fuguan Cantonese Restaurant）
 
+Address: 亚龙湾万豪度假酒店北区
+
+![](http://qcloud.dpfile.com/pc/-38VfEUFupdtmhHSrKuXd-aHVMgTAGb-yen5KnwPX3CfHDm53UclfFwiGESak12TTYGVDmosZWTLal1WbWRW3A.jpg)
+![](http://qcloud.dpfile.com/pc/AGGSxH7ivfefI42LJl4LtDdGMifx8L9v0m8_p9vacZCEhjjlGPldAQe48WdJLJmzTYGVDmosZWTLal1WbWRW3A.jpg)
+
 [The address in Google Map](https://www.google.se/maps/place/%E7%A6%8F%E5%86%A0%E7%B2%A4%E8%8F%9C%E9%85%92%E6%A5%BC/@18.2263574,109.6318093,17z/data=!4m12!1m6!3m5!1s0x315ab46e3366278f:0xd3fac5b2371a8761!2sSanya+Marriott+Yalong+Bay+Resort+%26+Spa!8m2!3d18.226174!4d109.631305!3m4!1s0x0:0x3351b4be44d8262a!8m2!3d18.2280552!4d109.6310388!6m1!1e1?hl=zh-CN)
-====
 
 Description: This resaurant is locating in Yalong bay so easy to reach from hotel by walking.
 
 Stars: 4 ★★★★
+
+Average cost: ¥132
+
+[The address in Dianping](https://www.dianping.com/shop/1929850)
+
 
 ## Introduction of recipes (Just show some special foods. General seafoods you can decide when you're in there)
 * [White cut chicken(click to see wiki)](https://en.wikipedia.org/wiki/White_cut_chicken)
@@ -28,11 +36,19 @@ Brief introduction: Some kind of snack with beans as ingredient, sweet.
 ![](https://dbjdsnch130xu.cloudfront.net/uploads/recipe/cover/152508/large_48034a717c9c723a.jpg)
 
 # 2. 金岷坊石锅椰子鸡 （Jin min fang Coconut Chicken Restaurant）
-[The address in Dianping](https://www.dianping.com/shop/27317513)
+
+Address: 吉祥街145号
+
 Description: This restaurant is located in commercial center. They provide special hot pot coconut chicken food. When you visit the commercial center you can try this restaurant.
 
+[The address in Dianping](https://www.dianping.com/shop/27317513)
+
+[The address in Google Map](https://www.google.se/maps/place/145+Ji+Xiang+Jie,+Tianya+Qu,+Sanya+Shi,+Hainan+Sheng,+China,+572000/@18.2597741,109.49971,17z/data=!3m1!4b1!4m5!3m4!1s0x31454c73c7174f11:0x4c5c2af29280a3f2!8m2!3d18.259769!4d109.501904?hl=en)
+
 Stars: 5 ★★★★★
+
 ## Introduction of recipes (Just ask them for typical two person Hot pot coconut chicken food - 两人椰子鸡套餐, total price about  200RMB). 
+
 ![](http://qcloud.dpfile.com/pc/7bwAliUy5oMMbk8rJRZ5hOndQWL8AJLPkQ7aV-_UGX4wYJ0BoCGqruGdnykGepTrTYGVDmosZWTLal1WbWRW3A.jpg)
 
 # 3. 探火花式铁板烧(青春颂店) Tanhuohua Teppanyaki (Qing chun song store)
@@ -112,5 +128,64 @@ Exclude typical rice flour you can try other snacks in the restaurant.
 ![](http://qcloud.dpfile.com/pc/SIkDpz7ekEpxhnRSW-C3_Cr1HumrqWvWhFS_VrEq3jX4cT73WhcqPkaTBMLUhx68TYGVDmosZWTLal1WbWRW3A.jpg)
 
 
+# 6. [fast food - noodle and snacks] 秦云老太婆摊摊面 Qing yun old woman noodle restaurant
 
+Address: 文明路金润阳光1层商铺101号
+
+![](http://qcloud.dpfile.com/pc/Bl0XVW_-caY7yzRn_ERYVlV6YuEycUcTFptS09gh8e7EWz-wsUVvVdRULWYkSDSzTYGVDmosZWTLal1WbWRW3A.jpg)
+![](http://qcloud.dpfile.com/pc/yU9fViyzFKzW9O_jhGsvPmMTE5A3AsAr3N7ZaRK3bPbYCMX9GcqM8WqJs9_-0BbpTYGVDmosZWTLal1WbWRW3A.jpg)
+![](http://qcloud.dpfile.com/pc/8UdfpvBI-LdOJIaVpOb7lwcD5yq8jIC3Y_WYOf-movSZ3ExvpEBleuSip6Fydw3fTYGVDmosZWTLal1WbWRW3A.jpg)
+
+Description: This restaurant is located in commercial center. They provide the typical noodle and other snacks from northwest china.
+
+Stars: 4 ★★★★ 
+
+Average cost: ¥28
+
+[The address in Dianping](https://www.dianping.com/shop/32737886)
+
+[The address in Google map](https://www.google.se/maps/place/Jinrun+Sunny/@18.2508885,109.506343,18.63z/data=!4m5!3m4!1s0x31454b883b61cf9d:0x90830d9098d85388!8m2!3d18.250827!4d109.507343?hl=en)
+
+## Introduction of recipes
+
+Exclude typical noodle you can try other snacks in the restaurant.
+
+* 重庆小面 ¥10 (Chongqing noodle) 
+![](http://qcloud.dpfile.com/pc/DELVnGunQjIUP7PYWMqmz7ALRoJRwPZ6T9PKP-J_PG_DO0P3XwjXE2b786aP6Pq4TYGVDmosZWTLal1WbWRW3A.jpg)
+
+* 口水鸡 ¥22 (Koushui Chicken) 
+![](http://qcloud.dpfile.com/pc/QSHahUrLwu87WDGA6SrcotLNsWV1rDrnuxNXH7bqaOY_GsajBx04AOnVbEQHpEGmTYGVDmosZWTLal1WbWRW3A.jpg)
+
+# 7. [fast food - Cantonese cuisine] 喜喜港式茶餐厅(亚龙湾店) Lucky Hong Kong style tea restaurant ( Yalong bay store )
+
+Address: 湾月路新天地美食购物广场3楼
+
+![](http://qcloud.dpfile.com/pc/XJPGcOK3ZnesjJKY2Ih1fDOGld9OWnh2X2zJ1eOWNQ-nlr7PSOKOBDQc1mWm8VptTYGVDmosZWTLal1WbWRW3A.jpg)
+![](http://qcloud.dpfile.com/pc/rUW_-KGdm5pG4YjG3nVzEgOtXF8RPXLXIJbIqC7ejcr3KwWRL7kMtpZq2jMugPaCTYGVDmosZWTLal1WbWRW3A.jpg)
+
+Description: This restaurant is located in Yalong bay. very close the hotel. They provide the typical Cantonese cuisine fast food.
+
+Stars: 5 ★★★★★ 
+
+Average cost: ¥83 (Since the resaurant based on Ya long bay it is expensive than other areas)
+
+[The address in Dianping](https://www.dianping.com/shop/27279929)
+
+[The address in Google map - just close the place. the restaurant are inside the building](https://www.google.se/maps/place/Xilaile+Supermarket/@18.2282297,109.6307214,20.13z/data=!4m13!1m7!3m6!1s0x315ab47039083b2b:0xa7009653645ffeb2!2sWan+Yue+Lu,+Jiyang+Qu,+Sanya+Shi,+Hainan+Sheng,+China!3b1!8m2!3d18.2286925!4d109.6306087!3m4!1s0x0:0xf68ad7edcb0d508f!8m2!3d18.22841!4d109.6308732?hl=en)
+
+## Introduction of recipes
+
+You can try almost all types of the food in different times.
+
+* 烧鹅 price about ¥50 (Roast goose) 
+![](http://qcloud.dpfile.com/pc/IRVWvWghymJbnsZn-en7ysDa2kqBg_DNrG6uR6o26pPyruugCiVRG1P-dzvdbhycTYGVDmosZWTLal1WbWRW3A.jpg)
+
+* 腊肉煲仔饭 ¥38 (Bacon claypot) 
+![](http://qcloud.dpfile.com/pc/yoFy9RzwIj2l5WnRsgtNO2ZbEPHbGh4Y4zu7ZS535RgMrwsCdlMrDD4UG1f5lZj_TYGVDmosZWTLal1WbWRW3A.jpg)
+
+* 虾饺 ¥20 (Shrimp dumplings) 
+![](http://qcloud.dpfile.com/pc/0iRnkJoxa7d3-XvUj12xNJ2DJaJZ5QsQraoyDvUkQLLjfRmSOycLFgUWB3SdU3RWTYGVDmosZWTLal1WbWRW3A.jpg)
+
+* 港式奶茶 ¥16 (Hong Kong milk tea)
+![](http://qcloud.dpfile.com/pc/TKiPqv4qv-iaCfazOtPVkEIuMc5JWJsZV2H-wvLjjy49Vv-K7K1lRSAtc0Rwz-rWTYGVDmosZWTLal1WbWRW3A.jpg)
 
